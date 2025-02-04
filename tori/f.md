@@ -43,4 +43,4 @@
 11. Nagy Enciklopédia
 12. -- Fiziokratizsmus | X
 13. XVI. Lajos 
-14. -- Robesqeuie | X
+14. -- Ro | X
