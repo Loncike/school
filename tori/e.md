@@ -1,0 +1,14 @@
+## pontok:
+- feladat megértés
+- T1 Idő meghatározás: 1703-1711
+- T2 Térben elhelyezés: ÉK-Mo Pozsony
+- K1 Fogalmak: Király, Nemes, Fejedelem, jobbágy
+- K2 Fogalmak Kuruc, Protestáns, Országgyűlés, Kiváltságok
+- K3 -   
+- F1 Forrás
+- F2
+- F3
+- E1 Eseményeket Alakító Tényező: Rendek lemondanak a szabad király választásról - Sértik a rendek jogait
+- E2 Jobbágyi sérelmek
+- E3 
+- E4 Saját ismeretek

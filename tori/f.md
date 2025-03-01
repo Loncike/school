@@ -44,3 +44,20 @@
 12. -- Fiziokratizsmus | X
 13. XVI. Lajos 
 14. -- Ro | X
+
+1. 1703-1711
+2. Brezán
+3. Spanyol öröködési háború
+4. Habsburgok - Franciák
+5. Esze Tamás
+6. Ónod
+7. 1707 | X
+8.  Libertas | X
+9. vak bottyán
+10. --
+11. Labancok - Kurocuk
+12. Szerb
+13. Újszerzeményi bizottság
+14. Zrinyi Ilona
+
+
