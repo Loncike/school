@@ -60,4 +60,15 @@
 13. Újszerzeményi bizottság
 14. Zrinyi Ilona
 
+1. Mária Terézia
+2. 1658 | X -> 1541
+3. Luther Márton 
+4. Kálvinisták | X 
+5. colombus 
+6. 1492 
+7. Manufaktura
+8. - 
+9. - 
+10. II. József
 
+6/10
