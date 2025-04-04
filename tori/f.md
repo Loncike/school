@@ -72,3 +72,16 @@
 10. II. József
 
 6/10
+
+1. Morese
+2. Gőzmozdony
+3. Textil
+4. Anglia
+5. Fulton
+6. James Watt
+7. Görög
+8. II. József
+9. -
+10. IV. Béla
+
+9/10
