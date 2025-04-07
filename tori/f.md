@@ -85,3 +85,9 @@
 10. IV. Béla
 
 9/10
+
+1. 2 
+2. Felsőtábla | X
+3. Pozsony 
+4. alispán
+5. Pozsony, Buda | x
