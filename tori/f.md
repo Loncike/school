@@ -91,3 +91,35 @@
 3. Pozsony 
 4. alispán
 5. Pozsony, Buda | x
+
+0/0
+
+1. I. Ferenc | X 
+2. Főispán
+3. Bécs
+4. Széchényi Ferenc
+5. 2
+6. Felsőtábla, Alsótábla
+7. Alsótábla
+8. 
+9.  
+10. Wesselényi Miklós
+11. Katona tiszt
+12. Anglia
+13. Monoterizmus
+14. Luter Márton
+
+1. Kolera | X
+2. 1830
+3. Széchenyi - Hitel
+4. Tudós társaság
+5. Ősiség
+6. Lóverseny
+7. Tisza szabályozása
+8. Hídvám
+9. Anglia
+10. Arisztokrata
+11. Szatmár
+12. Érdekegyesítés | X 
+13. Önkéntes örökváltság | X
+14. Wesselényi
